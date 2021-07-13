@@ -12,3 +12,4 @@ English level: *Pre-Intermediate*
 
 At the moment I am working in a large Russian company DNS as a commercial specialist. 
 I consider my strengths to be persistence and determination. While my skills in development are minimal, but I already know the basics of HTML and CSS. 
+> /ᐠ ._. ᐟ\ﾉ
